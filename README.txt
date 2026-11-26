@@ -1,0 +1,2 @@
+Drop real photos here named: point-of-no-return.jpg, slave-relics-museum.jpg, heritage-museum.jpg, first-storey-building.jpg, seriki-abass-barracoon.jpg, agia-tree.jpg
+Use your own photos or properly licensed images.
